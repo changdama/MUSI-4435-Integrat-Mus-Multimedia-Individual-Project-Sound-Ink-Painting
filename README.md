@@ -1,0 +1,2 @@
+# MUSI-4435-Integrat-Mus-Multimedia-Individual-Project-Sound-Ink-Painting
+Chinese ink painting: simple lines,grayscale nuances,embodies spirit ofnature, diverse themes, rich culturalphilosophy. Traditionally, we use paintbrushes todraw images, so if sound becomes thepaintbrush in our hands, then it canalso paint beautiful images.For the DGD1:WandererThe "roaming" of sound creates differ-ent possibilities for ink painting
